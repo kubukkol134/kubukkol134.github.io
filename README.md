@@ -1,2 +1,0 @@
-# sakertokundel.github.io
-sakertokundel
